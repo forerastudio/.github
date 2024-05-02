@@ -1,5 +1,7 @@
-## WE ARE THE FUTURE. 👋
+Welcome to **Forera Studio**.
+--
 
-https://forerastudio.com
-forerastudio@gmail.com
-info@forerastudio.com
+As Forera Studio, we are a team that aims to sign innovative projects on many platforms.
+
+― [Website](https://forerastudio.com "Forera Studio Website") <br />
+― [Instagram](https://instagram.com/forerastudio "Forera Studio Instagram")
