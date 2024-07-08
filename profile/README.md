@@ -1,4 +1,4 @@
-![we-are-the-future](https://github.com/forerastudio/.github/assets/78941156/f7cb5e2b-1a3a-4f6a-aa89-b6f42d1b5163)
+![image](https://github.com/forerastudio/.github/assets/78941156/f665010c-163e-46de-ad73-61f537d335eb)
 
 <h1 align="center">We are the future.</h1>
 <p align="center" style="font-size: large">
